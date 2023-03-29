@@ -1,1 +1,3 @@
-# DWD-Week-1
+# Week 1 - Net Art
+
+
